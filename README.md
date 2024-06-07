@@ -1,16 +1,16 @@
-## Hi there 👋
+## seja bem vindo ao meu prefil💙
 
-<!--
-**franciscodourad0/franciscodourad0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu e nome Francisco Dourado
 
-Here are some ideas to get you started:
+Melhor do FIFA
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+falso kraio
+
+### Você pode 📧
+
+Franciscodourado015@gmail.com
+
+@francisco_dourado_9
+
+![](https://media.tenor.com/5S7UeMNDIf8AAAAi/hang-loose-goal-celebration.gif)
+
